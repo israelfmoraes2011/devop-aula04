@@ -1,4 +1,3 @@
-Avenger
-Powerled.
-Cutaway
-cacadores de emocao
+X-man
+Street Fighter
+Stranger Things
